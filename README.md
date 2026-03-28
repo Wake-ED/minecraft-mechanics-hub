@@ -1,0 +1,1 @@
+Better than Minecraft Wiki
